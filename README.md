@@ -1,1 +1,1 @@
-# cool-testinonial-boxes
+# Cool Testinonial Boxes
